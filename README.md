@@ -1,3 +1,6 @@
+![back (1)](https://user-images.githubusercontent.com/130748953/234826777-60f58753-b8d3-4fb7-9df5-00ad591bafe9.png)
+![footer](https://user-images.githubusercontent.com/130748953/234826784-f5aed22f-b4f5-4c0a-952f-8f0b6af651cc.jpg)
+![dana_logo (1)](https://user-images.githubusercontent.com/130748953/234826786-edbdcc68-aabd-4d86-b376-8b833d361c87.png)
 ![Flag_of_Indonesia svg](https://user-images.githubusercontent.com/130748953/234826356-27db67e8-291d-4926-bd5e-6863428c4d14.png)
 ![kmc_20230416_104928](https://user-images.githubusercontent.com/130748953/234787440-be0c0c7d-8e20-4106-a54b-428a387b1132.jpg)
 ![kmc_20230416_104928](https://user-images.githubusercontent.com/130748953/234787540-94dfcd48-6ea8-4b68-9d75-ef2f9b8e247f.jpg)
